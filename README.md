@@ -32,4 +32,6 @@ For **ethical hacking**, **network scanning**, and **WiFi investigation**.
 ---
 
 ## 🔐 Legal Disclaimer
-
+NOT FOR ILLEGAL PURPOSES
+SUPPORT ME ON INSTAGRAM=@x_pro_ft
+AFTER 1K FOLLOWER I UPLOAD THE UPGRADED AND POWERFULL VERISON OF X-FLY-35.....
